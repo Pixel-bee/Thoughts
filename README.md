@@ -1,0 +1,2 @@
+# Thoughts
+Things in general
